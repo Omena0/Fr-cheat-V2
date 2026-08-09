@@ -7,6 +7,7 @@
 
 ## WATCH THIS:
 https://youtu.be/8QNFSwFcx-s?si=7OviEaKVrd_CRH5v
+(kinda outdated)
 
 ---
 
